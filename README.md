@@ -4,4 +4,4 @@
 
 > **qu~~ill~~on** ♯ he*him*
 
-> ‹ [**byi**](https://rentry.co/yamahar1) 𖤐 [*prnscc*](gtpps://pronouns.cc/yamaha) ›
+> ‹ [**byi**](https://rentry.co/yamahar1) 𖤐 [*prnscc*](https://pronouns.cc/yamaha) ›
